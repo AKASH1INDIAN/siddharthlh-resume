@@ -1,2 +1,0 @@
-# siddharthlh-resume
-My resume
